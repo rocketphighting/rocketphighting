@@ -1,5 +1,5 @@
 ## kara / aubree / lulz
 
-ıllı⠀﹒⠀aubree **!** *!*⠀🎀
+ıllı⠀﹒⠀aubree **!**!⠀🎀
 > **14**⠀₊ 🍦︰ she / it
 ﹒🍓﹐ infp ++ MST timezone
